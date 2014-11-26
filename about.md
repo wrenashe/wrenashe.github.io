@@ -8,8 +8,7 @@ Some information about you!
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself. 
+一个纯吹的人 搞伤的人 拖累了低级趣味的人
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
